@@ -1,0 +1,1 @@
+# pokupka_avatara
